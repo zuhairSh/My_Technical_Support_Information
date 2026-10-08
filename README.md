@@ -31,7 +31,7 @@
 [**github.com/zuhairSh**](https://github.com/zuhairSh)
 
 ### 💼 LinkedIn
-[**LinkedIn Profile**](https://lnkd.in/p/dXvmNhjU)
+[**LinkedIn Profile**](https://www.linkedin.com/in/muhammed-zuhair-al-shell-675013417?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
 
